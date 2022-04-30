@@ -5,7 +5,7 @@
 - 🏷️ I’m looking to collaborate on Web development And Android development projects...
 - 🤔 I’m looking for help from great Experts having Expertise in particular field of mine...
 - 💬 Ask me about ...Anything
-- 📫 How to reach me: ...[Instagram](@its_rks_style)
+- 📫 How to reach me: ...[!pygame](https://www.instagram.com/its_rks_style/)
 - 😄 Pronouns: ...HE/HIM
 - ⚡ Fun fact: ...Crazyhustler
 -->
